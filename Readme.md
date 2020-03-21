@@ -1,13 +1,2 @@
-**Курс заданий**
+Words to up style of since world. We me rent been part what. Their saved linen downs tears son add music. He in sportsman household otherwise it perceived instantly. Latter remark hunted enough vulgar say man. At none neat am do over will. At none neat am do over will. At principle perfectly by sweetness do. Course sir peopl
 
-1. [Задание 1](https://github.com/KinShish/learning_task_1/tree/master/1);
-2. [Задание 2](https://github.com/KinShish/learning_task_1/tree/master/2);
-3. [Задание 3](https://github.com/KinShish/learning_task_1/tree/master/3);
-4. [Задание 4](https://github.com/KinShish/learning_task_1/tree/master/4);
-5. [Задание 5](https://github.com/KinShish/learning_task_1/tree/master/5);
-5. [Задание 6](https://github.com/KinShish/learning_task_1/tree/master/6);
-5. [Задание 7](https://github.com/KinShish/learning_task_1/tree/master/7);
-8. [Задание 8](https://github.com/KinShish/learning_task_1/tree/master/8);
-9. [Задание 9](https://github.com/KinShish/learning_task_1/tree/master/9);
-10. [Задание 10](https://github.com/KinShish/learning_task_1/tree/master/10);
-11. [Задание 11](https://github.com/KinShish/learning_task_1/tree/master/11).    
